@@ -47,3 +47,5 @@ Now you are ready to get creative!
 Next, enclose it with felt, ribbon, etc, and embellish with flowers, rhinestones, etc. 
 
 Congradulations! you now have a new fun piece of jewelry! 
+
+
