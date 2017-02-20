@@ -48,5 +48,5 @@ Next, enclose it with felt, ribbon, etc, and embellish with flowers, rhinestones
 
 Congradulations! you now have a new fun piece of jewelry! 
 
-![alt tag](http://www.taylorgandolfi.com/wp-content/uploads/2017/02/IMG_20170219_194937.jpg)
+![alt tag](http://www.taylorgandolfi.com/wp-content/uploads/2017/02/IMG_20170219_194937.png)
 
