@@ -22,7 +22,7 @@ Assembly:
 
 The circuit is not complicated at all! Follow the diagram below. 
 
-![alt tag](http://www.taylorgandolfi.com/wp-content/uploads/2017/04/Screen-Shot-2017-04-17-at-7.31.58-PM.png)
+![alt tag](http://www.taylorgandolfi.com/wp-content/uploads/2017/04/Screen-Shot-2017-04-17-at-7.38.50-PM.png)
 
 
 
